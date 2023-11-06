@@ -1,0 +1,1 @@
+# Paradigmas-Monitoramento-Sinais-Vitais
